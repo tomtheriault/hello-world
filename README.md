@@ -1,2 +1,2 @@
-# hello-world
-Beginning
+Seeker of truth ...
+Why is the truth hidden ?
